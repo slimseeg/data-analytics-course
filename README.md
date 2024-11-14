@@ -84,9 +84,10 @@ We are here to support you every step of the way. Our DMs are open. In addition,
 ### Office Hours
 
 **Time/Day:**
+- Monday 6pm - 8pm
 - Thursday 10am - 12pm
 - Thursday 7:30pm - 9pm
-- Friday 6pm - 8pm
+
 
 **Location:** Class Zoom 
 
